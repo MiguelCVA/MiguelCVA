@@ -1,5 +1,5 @@
 # 💫 About Me:
-☕️ I am 16 years old and I am currently studying JAVA
+☕️ I am 17 years old and I am currently studying JAVA
 
 
 ## 🌐 Socials:
